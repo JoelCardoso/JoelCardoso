@@ -1,5 +1,4 @@
-### Hi there 👋
-# Hi, I'm Joel Cardoso! :D
+### Hi, I'm Joel Cardoso! :D
 
 
 ### About me
